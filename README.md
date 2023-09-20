@@ -86,18 +86,13 @@ _**获取链接**_
 
 ![图片](https://mmbiz.qpic.cn/mmbiz_png/GhiafELVODOzGTbWDS9RjWaeHRDLHgFsXicmehMic58icCxPHiafh6ZibIicwyuYdfZnmr8oDxDvkaymS3DRicPjic0fBFA/640?wx_fmt=png&wxfrom=5&wx_lazy=1&wx_co=1)
 
-**视频演示**
 
-**所需要的软件和网站  
-**
 
-**软件![图片](https://res.wx.qq.com/t/wx_fed/we-emoji/res/v1.3.10/assets/newemoji/Yellowdog.png?wxfrom=5&wx_lazy=1&wx_co=1)
-![图片](https://res.wx.qq.com/t/wx_fed/we-emoji/res/v1.3.10/assets/newemoji/Yellowdog.png?wxfrom=5&wx_lazy=1&wx_co=1)  
-**
+**所需要的软件和网站**
 
-**IDM:**_https://www.ghxi.com/pcidm.html_
+**IDM**:_https://www.ghxi.com/pcidm.html_
 
-**NDM****:**_https://www.123pan.com/s/3AlDVv-o8CA3.html提取码:Boew_
+**NDM**:_https://www.123pan.com/s/3AlDVv-o8CA3.html提取码:Boew_
 
 **解析网站:**_https://pd.3cube.top/
 ![图片](https://res.wx.qq.com/t/wx_fed/we-emoji/res/v1.3.10/assets/newemoji/2_06.png?wxfrom=5&wx_lazy=1&wx_co=1)_
