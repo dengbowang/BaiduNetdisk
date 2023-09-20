@@ -91,11 +91,13 @@ _**获取链接**_
 **所需要的软件和网站  
 **
 
-**软件![图片](https://res.wx.qq.com/t/wx_fed/we-emoji/res/v1.3.10/assets/newemoji/Yellowdog.png?wxfrom=5&wx_lazy=1&wx_co=1)![图片](https://res.wx.qq.com/t/wx_fed/we-emoji/res/v1.3.10/assets/newemoji/Yellowdog.png?wxfrom=5&wx_lazy=1&wx_co=1)  
+**软件![图片](https://res.wx.qq.com/t/wx_fed/we-emoji/res/v1.3.10/assets/newemoji/Yellowdog.png?wxfrom=5&wx_lazy=1&wx_co=1)
+![图片](https://res.wx.qq.com/t/wx_fed/we-emoji/res/v1.3.10/assets/newemoji/Yellowdog.png?wxfrom=5&wx_lazy=1&wx_co=1)  
 **
 
 **IDM:**_https://www.ghxi.com/pcidm.html_
 
 **NDM****:**_https://www.123pan.com/s/3AlDVv-o8CA3.html提取码:Boew_
 
-**解析网站:**_https://pd.3cube.top/![图片](https://res.wx.qq.com/t/wx_fed/we-emoji/res/v1.3.10/assets/newemoji/2_06.png?wxfrom=5&wx_lazy=1&wx_co=1)_
+**解析网站:**_https://pd.3cube.top/
+![图片](https://res.wx.qq.com/t/wx_fed/we-emoji/res/v1.3.10/assets/newemoji/2_06.png?wxfrom=5&wx_lazy=1&wx_co=1)_
